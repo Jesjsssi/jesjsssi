@@ -1,4 +1,4 @@
-<p align="center"><img src="https://github.com/Jesjsssi/jesjsssi/assets/127316708/c0b47583-2b3d-4aff-beb7-cc3408e7326e"></p>
+<p align="center"><img src="https://github.com/Jesjsssi/jesjsssi/assets/127316708/ddc8fb7c-fa0e-4d59-a1ab-445ff552fd88"></p>
 
 ## <div align="center">I'm Jesica Trivena Sinaga <img src="https://drive.google.com/uc?id=14xqv5Vq1iSHgQblRQwoVmMGU7XPq05u4" style="width:20px"/></div>
 
